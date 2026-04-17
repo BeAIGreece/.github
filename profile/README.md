@@ -52,6 +52,18 @@ Want to be part of Be AI?
 
 ---
 
+## ⚖️ Transparency & Registration
+
+Be AI operates with transparency and accountability.
+
+- Registered in the **Special Register of Voluntary Non-Governmental Organizations of Greece**  
+  `01624ΑΕΕ11099Ο87N 1713`
+
+- Registered in the **Register of Cultural Institutions of the Ministry of Culture of Greece**  
+  `68486`
+
+---
+
 ## ⭐ Support the Mission
 
 If you believe in empowering youth through technology,  
